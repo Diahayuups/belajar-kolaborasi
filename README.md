@@ -5,4 +5,8 @@ Seru sekali Dicoding Asah!
 
 # Dicoding Asah 2025
 
-Machine Learning
+Kelas Martiikulasi
+
+Kelas Teknis
+
+Semangat!
